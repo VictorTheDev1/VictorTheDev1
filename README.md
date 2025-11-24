@@ -1,4 +1,4 @@
-# 💫 About Me:
+Heyyy!
 I'm a passionate and dedicated individual with a keen eye for detail. I take my time to ensure that every project I undertake showcases the best of my abilities
 
 
